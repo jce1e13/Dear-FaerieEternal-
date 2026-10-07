@@ -1,2 +1,1 @@
-# Dear-FaerieEternal-
-hello you child…this is for you >:]
+hello FaerieEternal..I see your a silly little goober because you are saying things about Band-and my focuses. your my dear ally but I’m crazy if I’m on GitHub on a Saturday lol. I never change my focuses unless I notice :PPP
